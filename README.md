@@ -14,8 +14,8 @@
 ## Work experience 🤹‍♀️
 - (Mar.2016 -May.2016) Uniec (Incheon Airport Duty Free Shop), South Korea
 - (Jun. 2016 – Feb. 2017) Barista, Coffee Bay, South Korea 
-- (Mar. 2017 – Jull. 2018) Ground crew service for Hong Kong Express and Tiger Air in Jeju Airport.
-- (Aug. 2018 – Sep.2020) Ground crew service for Hong Kong Express in Incheon Airport
+- (Mar. 2017 – July. 2018) Ground crew service for Hong Kong Express and Tiger Air in Jeju Airport.
+- (Aug. 2018 – Sep.2020) Ground crew service for Hong Kong Express, Myanmar Airways International, Etihad Airways in Incheon Airport
 
 ## Language Skills 👀
 - TOEIC score 845
