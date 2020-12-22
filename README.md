@@ -8,7 +8,7 @@
 <br>
 
 ## Education 😋
-- (Mar.2012-Feb.2016) Hankuk University of Foreign Studies,Seoul,Korea
+- (Mar.2012-Feb.2016) Baekseok University,Korea
 - (Mar.2008-Feb.2011) Kyunggi Girls' Highschool,Seoul,Korea
 
 ## Work experience 🤹‍♀️
