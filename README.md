@@ -12,11 +12,12 @@
 - (Mar.2008-Feb.2011) Kyunggi Girls' Highschool,Seoul,Korea
 
 ## Work experience 🤹‍♀️
-- (Mar.2016 -May.2016) Uniec (Incheon Airport Duty Free Shop), South Korea
-- (Jun. 2016 – Feb. 2017) Barista, Coffee Bay, South Korea 
-- (Mar. 2017 – July. 2018) Ground crew service for Hong Kong Express and Tiger Air in Jeju Airport.
-- (Aug. 2018 – Sep.2020) Ground crew service for Hong Kong Express, Myanmar Airways International,
+- (Aug. 2018 – Sep. 2020) Ground crew service for Hong Kong Express, Myanmar Airways International,
                            Etihad Airways in Incheon Airport
+- (Mar. 2017 – Aug. 2018) Ground crew service for Hong Kong Express and Tiger Air in Jeju Airport.
+- (Jun. 2016 – Feb. 2017) Barista, Coffee Bay, South Korea
+- (Mar. 2016 - May. 2016) Uniec (Incheon Airport Duty Free Shop), South Korea
+                           
 
 ## Language Skills 👀
 - TOEIC score 845
