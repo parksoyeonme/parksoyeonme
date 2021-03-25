@@ -22,7 +22,6 @@
 ## Language Skills 👀
 - TOEIC score 845
 - JPT 565
-- HSK 4급
 
 ## Activities 😋
 - ‘Heungtaryeong Festival’ volunteer work. Participated in parade and dance competition.
